@@ -1,5 +1,5 @@
-i am going to yap really quick
-also a note to those people still whining about our system
+i am going to yap really quick. im about done trying to defend myself 
+
 
 we might leave the plural community as a whole. You probably don’t know us but The past few months has been nothing but stress on top of stress on top of stress
 
@@ -7,7 +7,7 @@ Between irl (different situations) and online death threats, apparently
 
 “endos are valid “ snd “endos arnet valid” “kys” and its getting annoying, idk what to think anymore. I just know were here together somehow
 
-I dont want to be involved in syscourse anymore. Pro nor anti. I lost a close friend who was very defensive/pro plural. And ever since we’ve just felt more and more vulnerable
+I dont want to be involved in syscourse anymore. Pro nor anti. I lost a close friend who was very defensive/pro plural (I DIDNT KNOW OF THE DRAWINGS LIKE THAT/gen BUT I HAVE ATTACTHMENT PROBLEMS O. IM SORRY) . And ever since we’ve just felt more and more vulnerable
 
 The arguments against each side feel repetitive. And its just- ughfhh. “No one’s claiming the disorder” “oh its mocking a disorder “ okay. Im sorry i had a rough childhood and is still having a rough time now and formed an probably unhealthy coping mechanism that I can’t control. Im sorry im not neurotypical like you. Mabye i am delusional, i dont see you trying to find help for me? Just like everyone else in my life. Stop acting like you fucking care cus no you don’t
 
