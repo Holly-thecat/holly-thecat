@@ -17,7 +17,6 @@ okay actual stuff v
  
  <img src=125113080_fS4WNawzLqpGg2U.png width=250 height=250>
 
-hello my name is holly (collectively too) i am the current main host of the floofy Operating system, (yeah. Like in computers, FloofyOS for short. )
 
 They/she collectively. Medianflux 
 
