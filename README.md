@@ -18,7 +18,7 @@ okay actual stuff v
  <img src=125113080_fS4WNawzLqpGg2U.png width=250 height=250>
 
 
-They/she collectively. Medianflux 
+they/she . weird ass undiagnosed system whose not allowed to exist apparently (🖕)
 
 Catkin, fictive and nonhuman heavy. you can treat us like source, or not, it doesn’t matter (unless someone says otherwise) 
 
